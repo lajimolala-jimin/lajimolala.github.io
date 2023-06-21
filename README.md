@@ -1,0 +1,1 @@
+# lajimolala.github.io
